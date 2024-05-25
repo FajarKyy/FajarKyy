@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![1710135698117](https://github.com/FajarKyy/FCBX/assets/123274988/45a1dad4-51d5-4437-87a1-b13432f7f025)
+![1710135698117](https://github.com/FajarKyy/FajarKyy/assets/123274988/6e07d14e-e4b2-45c6-a516-8b502dcac656)
